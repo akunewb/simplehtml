@@ -1,4 +1,4 @@
-Personal website of Manuel Ignacio López Quintero
+Personal website of Belajar Teknik Dasar Bola Basket
 -------------------------------------------------
 
 You are free (as in freedom and as in free of charge) to use, change and share:
